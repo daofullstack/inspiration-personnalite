@@ -10,3 +10,6 @@
 ### Réligion
 - IMAM BOUSSENNA
 - Ahamad tidjane Diabaté
+#### Recitation quran 
+- mouhamed taj
+-  Omar Hisham
