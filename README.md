@@ -10,6 +10,7 @@
 ### Réligion
 - IMAM BOUSSENNA
 - Ahamad tidjane Diabaté
+- Cheick demba baraoueli
 #### Recitation quran 
 - mouhamed taj
 -  Omar Hisham
