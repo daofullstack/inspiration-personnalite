@@ -14,5 +14,8 @@
 #### Recitation quran 
 - mouhamed taj
 -  Omar Hisham
-### Charismatique
+### Charismatique 
 - Francis Mvemba
+
+### Orateur
+- Mamadou Ismaïla Konaté
