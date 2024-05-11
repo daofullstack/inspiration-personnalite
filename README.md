@@ -19,3 +19,6 @@
 
 ### Orateur
 - Mamadou Ismaïla Konaté
+
+### Droit Juriste
+- Cabral Libi 
