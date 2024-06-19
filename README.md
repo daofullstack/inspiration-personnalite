@@ -11,6 +11,8 @@
 - IMAM BOUSSENNA
 - Ahamad tidjane Diabaté
 - Cheick demba baraoueli
+- Aboubacar sow (Style d'argumentation)
+- Tomy Karamogo waké (Style d'argumentation)
 #### Recitation quran 
 - mouhamed taj
 -  Omar Hisham
