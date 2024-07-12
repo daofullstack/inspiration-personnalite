@@ -23,4 +23,8 @@
 - Mamadou Ismaïla Konaté
 
 ### Droit Juriste
-- Cabral Libi 
+- Cabral Libi
+
+### Philanthropie
+
+- Boubacar Sidiki Sangaré BSS 
